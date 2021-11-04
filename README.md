@@ -1,6 +1,6 @@
 - 👋 Olá, sou @ lucasandre35
 - Estou interessado em aprender!
-- 🌱 Atualmente estou aprendendo programação e!
+- 🌱 Atualmente estou aprendendo programação e projetos!
 - 💞️ Estou procurando colaborar....
 - 📫 Como chegar até mim @eiandrew_ -(insta)
 - 
