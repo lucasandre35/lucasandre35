@@ -1,4 +1,4 @@
-👋 Olá, sou @ lucasandre35
+-👋 Olá, sou @ lucasandre35
 - Estou interessado em aprender!
 - 🌱 Atualmente estou aprendendo programação
 - 💞️ Estou procurando colaborar em ...
